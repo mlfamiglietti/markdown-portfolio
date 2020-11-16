@@ -1,1 +1,1 @@
-![Image of Attorney Matthew Famiglietti of the Law Office of Matthew T Famiglietti PLLC - see https://www.e-famiglietti.com for more information.] (http://my.datasphere.com/files/mydatasphere/styles/large/public/business/images/1018/1540429844_400_Matt_Ad_Photo.jpg)
+[Image of Matthew Famiglietti] (http://my.datasphere.com/files/mydatasphere/styles/large/public/business/images/1018/1540429844_400_Matt_Ad_Photo.jpg)
