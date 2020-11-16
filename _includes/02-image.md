@@ -1,1 +1,1 @@
-[Image of Matthew Famiglietti] (http://my.datasphere.com/files/mydatasphere/styles/large/public/business/images/1018/1540429844_400_Matt_Ad_Photo.jpg)
+(![Image of Yaktocat] (https:octodex.github.com/images/yaktocat.png))
